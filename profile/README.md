@@ -1,3 +1,3 @@
 ## Hi there 👋
 
-This is the weekend market, call for partners.
+This is the weekend market; calling for partners.
